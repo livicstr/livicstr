@@ -1,3 +1,5 @@
 - Oii, me chamo Ana Lívia💕
 - atualmente sou estudante
-- ![](https://media1.tenor.com/m/D1oizgORkXQAAAAC/cat-heart.gif)
+  
+- ![](https://media.tenor.com/uXvLSFKpbyIAAAAi/glorp-cat.gif)
+  
