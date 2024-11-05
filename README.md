@@ -1,3 +1,3 @@
-- Oioi, me chamo Ana Lívia💕
-- tenho 14 anos ⚡️
+- Oii, me chamo Ana Lívia💕
+- atualmente sou estudante
 - ![](https://media1.tenor.com/m/D1oizgORkXQAAAAC/cat-heart.gif)
